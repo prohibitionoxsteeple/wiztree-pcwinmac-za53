@@ -1,4 +1,4 @@
-# 
+# Último WizTree complementos para Mac OS | Instantáneo WizTree complementos para PC Windows. Con interfaz personalizable y eliminación de archivos temporales — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
